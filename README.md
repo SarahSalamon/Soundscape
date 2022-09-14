@@ -1,2 +1,3 @@
 # Soundscape
-This soundscape was improv after many technical errors. What professor Flynn and I came up with for the soundscape noise was a spontaneous interview with the background noise of some chattering Hillman students
+This soundscape was an improv idea after many technical errors. I was with professor Flynn working through the technical issues when we decided to do a spontaneous interview with the background noise of some chattering Hillman students for my soundscape.
+All important sounds are public domain CC0 1.0 Universal (CC0 1.0) Public Domain Dedication
